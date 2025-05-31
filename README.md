@@ -1,4 +1,4 @@
-# 🎮 Zobros's Blooket Hacks / Cheats GUI (V2.2)
+# 🎮 Zobro's Blooket Hacks / Cheats GUI (V2.2)
 The best, pro, Blooket Hacks & Cheat GUI out there, containing over 5 repositories worth of cheats, for simplicity and fun.
 Modified from zips blooket cheats
 
